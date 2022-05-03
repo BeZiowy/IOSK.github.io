@@ -9,5 +9,6 @@ Tiktok: https://www.tiktok.com/@iooseek
 .                
  YouTube channel: https://www.youtube.com/channel/UCa5W1yTWX9bIV55H2pwMaVw
 .
- Twitter: https://twitter.com/osektoja
+ 
+Twitter: https://twitter.com/osektoja
 .
