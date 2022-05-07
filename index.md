@@ -1,4 +1,4 @@
-Hello im ossek and my webiste is IOSK
+Hello im oossek and my webiste is IOSK
 At the bottom you have all the media I'm on 
 .                    
 Discord :<https://discord.gg/JSAa6rP6yz>
